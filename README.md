@@ -1,0 +1,1 @@
+# akiyamamiolwd.github.io
